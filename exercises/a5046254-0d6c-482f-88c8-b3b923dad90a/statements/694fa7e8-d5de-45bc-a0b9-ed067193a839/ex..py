@@ -1,0 +1,1 @@
+Translate the following English phrases into Korean.
